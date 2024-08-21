@@ -1,0 +1,6 @@
+- 👋 Oii, meu nome é Guilherme Alexandre.
+- 👀 Atualmente sou estudante do último ano do ensino médio, em uma escola de ensino integral diurno.
+- 🌱 Tenho 17 anos de idade.
+- 💞️ Pretendo fazer faculdade de Psicologia.
+- 📫 Gosto de passar meu tempo com família e amigos, lendo e assistindo filmes e séries.
+- ⚡ Minha série favorita é Teen Wolf.
